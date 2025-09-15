@@ -1,7 +1,6 @@
 <img width="389" height="236" alt="Ảnh chụp màn hình 2025-09-15 000055" src="https://github.com/user-attachments/assets/a7173a72-9630-4eed-9bb6-123b3bce8672" />
 <img width="441" height="242" alt="Ảnh chụp màn hình 2025-09-15 000121" src="https://github.com/user-attachments/assets/40297748-776f-40d2-8afa-f21eb0a7b9df" />
 ![Uploading Ảnh chụp màn hình 2025-09-15 000209.png…]()
-<img width="693" height="458" alt="Ảnh chụp màn hình 2025-09-15 001056" src="https://github.com/user-attachments/assets/e870f2c4-acb5-4e40-a2f7-708eff6b0b2b" />
 ![Uploading Ảnh chụp màn hình 2025-09-15 004436.png…]()
 <img width="856" height="665" alt="Ảnh chụp màn hình 2025-09-15 095316" src="https://github.com/user-attachments/assets/385fc2a6-a4f5-46fa-8f15-15d8b604b2c3" />
 <img width="679" height="269" alt="Ảnh chụp màn hình 2025-09-15 100135" src="https://github.com/user-attachments/assets/809c0b9e-fa22-4a85-b9b1-56a5435f6022" />
