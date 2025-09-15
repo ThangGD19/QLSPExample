@@ -1,10 +1,10 @@
+<img width="389" height="236" alt="Ảnh chụp màn hình 2025-09-15 000055" src="https://github.com/user-attachments/assets/82130f44-3796-4372-b7b3-00c814b53c57" />
+<img width="389" height="236" alt="Ảnh chụp màn hình 2025-09-15 000055" src="https://github.com/user-attachments/assets/12ae116f-3690-4560-bf12-4f4fe439fd69" />
+<img width="441" height="242" alt="Ảnh chụp màn hình 2025-09-15 000121" src="https://github.com/user-attachments/assets/188b989e-d943-46f8-bb01-0f47934581e6" />
+<img width="453" height="169" alt="Ảnh chụp màn hình 2025-09-15 000209" src="https://github.com/user-attachments/assets/a4ff4a51-d18e-455a-aca1-39034af4a333" />
+
+
+
+
 <img width="389" height="236" alt="Ảnh chụp màn hình 2025-09-15 000055" src="https://github.com/user-attachments/assets/a7173a72-9630-4eed-9bb6-123b3bce8672" />
 <img width="441" height="242" alt="Ảnh chụp màn hình 2025-09-15 000121" src="https://github.com/user-attachments/assets/40297748-776f-40d2-8afa-f21eb0a7b9df" />
-![Uploading Ảnh chụp màn hình 2025-09-15 000209.png…]()
-![Uploading Ảnh chụp màn hình 2025-09-15 004436.png…]()
-<img width="856" height="665" alt="Ảnh chụp màn hình 2025-09-15 095316" src="https://github.com/user-attachments/assets/385fc2a6-a4f5-46fa-8f15-15d8b604b2c3" />
-<img width="679" height="269" alt="Ảnh chụp màn hình 2025-09-15 100135" src="https://github.com/user-attachments/assets/809c0b9e-fa22-4a85-b9b1-56a5435f6022" />
-<img width="811" height="86" alt="Ảnh chụp màn hình 2025-09-15 102612" src="https://github.com/user-attachments/assets/1417e930-f8ea-452a-aa0f-6d2123b5ed18" />
-<img width="669" height="205" alt="Ảnh chụp màn hình 2025-09-15 103351" src="https://github.com/user-attachments/assets/b48aa29e-66d6-491a-a379-52f6dec11264" />
-<img width="784" height="52" alt="Ảnh chụp màn hình 2025-09-15 103532" src="https://github.com/user-attachments/assets/29d3ea81-0155-4fdb-a70e-983428dd8c11" />
-![Uploading Ảnh chụp màn hình 2025-09-15 104109.png…]()
